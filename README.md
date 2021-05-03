@@ -6,6 +6,16 @@
 <h2><a href="https://fbaker.ru/torty-na-zakaz" target="_blank">Торты на заказ в Москве на день рождения</a></h2>
 
 
+<strong>детские торты на заказ в москве</strong><br>
+<strong>торты на заказ недорого в москве</strong><br>
+<strong>торт на заказ цена</strong><br>
+<strong>торты на заказ недорого</strong><br>
+
+
+
+
+
+
 Адрес сайта https://fbaker.ru/
 
 Смотреть <strong>каталог тортов на заказ</strong>: https://fbaker.ru/torty-na-zakaz
